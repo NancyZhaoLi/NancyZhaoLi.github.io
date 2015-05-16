@@ -8,4 +8,5 @@ contact me for internship/full-time opportunities and for project collaboration.
 me a message on the website!
 
 Enjoy!
+
 Nancy
